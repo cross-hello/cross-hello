@@ -1,1 +1,1 @@
-A ordinary Christian
+A ordinary christian
